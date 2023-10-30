@@ -1,0 +1,2 @@
+# Pertemuan12_A2_SairaFatimahAzzahraNew
+Saira Fatimah Azzahra 518201
